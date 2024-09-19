@@ -14,3 +14,13 @@ Here are the steps you need to follow to download OnlyFans videos and pictures:
 
 Downloading OnlyFans content without paying for a subscription is possible with the right tool. By following the steps outlined above, you can download high-quality videos and pictures from your favorite creators for free. This tool offers a safe, anonymous, and efficient way to access and download content. 
 
+Additional Tips for Using the Tool
+
+•	Use a Mobile Device: While the tool is compatible with PCs and desktops, it works best on mobile devices.
+
+•	Ensure a Stable Internet Connection: A stable internet connection will help in loading and downloading the content more quickly and efficiently.
+
+•	Complete Any Verification Steps: Occasionally, a verification window might appear. Simply complete it to proceed with downloading.
+
+
+
